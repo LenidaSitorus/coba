@@ -1,0 +1,1 @@
+Si Kancil adalah seekor hewan yang terkenal cerdas dan sangat menyukai petualangan. Ia selalu berusaha untuk menemukan cara terbaik dalam menghadapi berbagai tantangan yang dihadapinya. Si Kancil tinggal di hutan yang rimbun, di mana ia memiliki banyak teman. Dalam cerita ini, kita akan mengikuti petualangan seru Si Kancil yang tak pernah membosankan!
