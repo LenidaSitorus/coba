@@ -1,0 +1,1 @@
+Saat Kancil menikmati timun yang lezat, ia bertemu dengan Kura-kura yang sedang berjalan pelan. "Halo, Kura-kura! Apa kabar?" tanya Kancil. Kura-kura menjawab, "Aku baik-baik saja, Kancil. Apa kau mau berbagi timun dengan aku?" Kancil merasa senang bisa berbagi makanan dengan temannya yang baru. Mereka pun menjadi teman baik dan berbagi cerita tentang petualangan mereka.
